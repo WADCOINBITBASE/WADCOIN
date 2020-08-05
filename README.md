@@ -1,2 +1,2 @@
 # WadCoinFHemBit
-$FHem
+$FHemFHe mCRIPTS'FHe mPIMP FHe mDOGE  FHe mPOT
